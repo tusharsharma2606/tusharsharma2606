@@ -1,4 +1,4 @@
-# 💫 Hi There, I'm Tushar Sharma
+# 🤖 Hi There, I'm Tushar Sharma
 
 🚀 BTech CSE (Artificial Intelligence & Data Science) Student At @JECRC University | Aspiring AI ENGINEER| 
 
